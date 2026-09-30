@@ -1,1 +1,0 @@
-# parichatch-facgate
